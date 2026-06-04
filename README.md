@@ -47,5 +47,5 @@ I love combining logical thinking with creativity — whether it’s debugging, 
 ---
 
 📫 **Reach me at:**  
-📧 chandnimaithil207@gmail.com  
+📧 chandnimaithil03@gmail.com  
 🌐 [GitHub: chandnimaithil207](https://github.com/chandnimaithil207)
